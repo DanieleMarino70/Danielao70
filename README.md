@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @Danielao70
 - 👀 I’m interested in ... Technology, AMD fan here!
 - 🌱 I’m currently learning ... HTML, CSS, JS, C, C++
-- 💞️ I’m looking to collaborate on ... 
 - 📫 How to reach me ... You can find me on LinkedIn!
 
 A little bit of me:
