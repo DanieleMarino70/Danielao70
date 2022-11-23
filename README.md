@@ -9,9 +9,6 @@ even because i didn't have much knowledge, so after many years i came back to pr
 that it becomes really frustrating, but now i know that patience rewards best with a calm attitude. If you are struggling hang in there, don't give up! 
 
 
-Repeat to yourself
-i can do it, i am clever... always, like a mantra. Repeat, Repeat and Repeat!!!
-i can tell you, it works!
 
 <!---
 Danielao70/Danielao70 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
